@@ -6,16 +6,16 @@ Lampan var släckt när Anna smög in, trots att det faktiskt inte var så sent.
 
 Klockan halv sex ringde klockan, men då hade Anna redan vaknat. Hon motade tillbaks en våg av irritation när hon tittade på den tomma dubbelsängen. Barnen var tillräckligt stora för att sova själva. Hon och Peter hade grälat om det senast i förrgår, och hon trodde att de hade kommit överens om att Molly, som var yngst, skulle må bättre av att utveckla en egen trygghet. Anna hade aldrig gått in till föräldrarna om natten, inte ens när hon var yngre än Molly. Med en suck drog hon på sig den skjorta och de byxor som redan hängde framme, och gick ner till köket för att brygga kaffe. Anna älskade den här stunden på dagen. Det var redan ljust ute, men ännu inte dagsljus. En speciell sorts energi fyllde henne på morgonen. Att snabbt komma igång med dagen. Det fanns inget värre än utdragna mornar. Peter tyckte om att sova så länge det bara gick, och sedan sitta med sin frukost och sitt morgonkaffe i timmar om tid fanns. Det gjorde det ju inte nu när han skulle få iväg barnen till skolan, men han verkade inte ha någonting emot det heller. Anna kunde bli galen på barnens seghet. Hur kunde det ta en halvtimme att få på sig skor och ytterkläder? Nu fyllde Anna sin termoskopp med kaffe, drog på sig jobbskorna och smög ut.  
 
-- Mamma!
+-- Mamma!
 Anna hann inte mer än öppna ytterdörren förrän hon nästan vältes av Pontus och Molly. Hon satte sig på knä och slog armarna om dem, och satt så en stund innan hon reste sig igen, med Molly i famnen och armen och Pontus. Molly grät och Pontus darrade på rösten. 
-- Vad är det som har hänt? avbröt hon dem för säkert tredje gången, nu med lite skarpare röst. Det hjälpte. Molly tystnade och borrade in sitt ansikte i Annas hals. Pontus sträckte lite på sig. 
- - Mamma, var är pappa? frågade han.
+-- Vad är det som har hänt? avbröt hon dem för säkert tredje gången, nu med lite skarpare röst. Det hjälpte. Molly tystnade och borrade in sitt ansikte i Annas hals. Pontus sträckte lite på sig. 
+-- Mamma, var är pappa? frågade han.
 Anna rynkade pannan och kramade lite hårdare om Molly. 
-- Vad menar du, Pontus? Han är väl... Anna såg sig om, som om Peter förmodligen fanns där någonstans.
-- Han kom inte och väckte oss i morse. Det var jag som fixade frukost, och vi kom bara lite försent till skolan. Stoltheten överöstade nästan oron i Pontus röst.
-- Vad menar du... upprepade Anna, utan att riktigt kunna ta in vad Pontus sa.
-- Och han var inte hemma när vi kom hem, fortsatte Pontus. Jag trodde att pappa skulle hämta oss idag, men när han inte hade kommit kvart över fyra gick jag bort till Mollys avdelning...
-- Jag lekte med Frida, sa Molly. Jag ville att hon skulle följa med oss hem idag. Pontus sa att det inte gick, fast pappa hade faktiskt lovat att...
-- Är han inte hemma? avbröt Anna och satte ner Molly. Hon gick in i köket utan att ta av sig varken skorna eller jackan, och såg sig förbryllat om. Tomt. Pontus väska låg slängd i ett hörn, och Anna hängde upp den på stolen, medan hon gick igenom köket till vardagsrummet. Lika tomt där, förutom Mollys lego som låg utspritt över halva golvet. Anna ruskade på huvudet och tog fram mobilen. Inga missade samtal. Ifall Peter hade fastnat i trafiken borde han ha ringt henne. Hon slog Peters nummer och kom direkt till röstmedelandet. En ovanlig, kall känsla fyllde magen. 
-- Mamma...? Pontus darrade på rösten igen, och Anna sträckte på sig. Han kom väl hem. Var han fortfarande sur för att hon hade kommit hem så sent från sin löprunda igår? Det lät inte rätt. Någonting måste ha hänt. Vad det än var, så skulle de snart få veta det. Med en ansträngning lät hon ansiktet slappna av, och kramade om Pontus.
-- Vill ni ha pannkakor? frågade hon, och gick tillbaks till köket. 
+-- Vad menar du, Pontus? Han är väl... Anna såg sig om, som om Peter förmodligen fanns där någonstans.
+-- Han kom inte och väckte oss i morse. Det var jag som fixade frukost, och vi kom bara lite försent till skolan. Stoltheten överöstade nästan oron i Pontus röst.
+-- Vad menar du... upprepade Anna, utan att riktigt kunna ta in vad Pontus sa.
+-- Och han var inte hemma när vi kom hem, fortsatte Pontus. Jag trodde att pappa skulle hämta oss idag, men när han inte hade kommit kvart över fyra gick jag bort till Mollys avdelning...
+-- Jag lekte med Frida, sa Molly. Jag ville att hon skulle följa med oss hem idag. Pontus sa att det inte gick, fast pappa hade faktiskt lovat att...
+-- Är han inte hemma? avbröt Anna och satte ner Molly. Hon gick in i köket utan att ta av sig varken skorna eller jackan, och såg sig förbryllat om. Tomt. Pontus väska låg slängd i ett hörn, och Anna hängde upp den på stolen, medan hon gick igenom köket till vardagsrummet. Lika tomt där, förutom Mollys lego som låg utspritt över halva golvet. Anna ruskade på huvudet och tog fram mobilen. Inga missade samtal. Ifall Peter hade fastnat i trafiken borde han ha ringt henne. Hon slog Peters nummer och kom direkt till röstmedelandet. En ovanlig, kall känsla fyllde magen. 
+-- Mamma...? Pontus darrade på rösten igen, och Anna sträckte på sig. Han kom väl hem. Var han fortfarande sur för att hon hade kommit hem så sent från sin löprunda igår? Det lät inte rätt. Någonting måste ha hänt. Vad det än var, så skulle de snart få veta det. Med en ansträngning lät hon ansiktet slappna av, och kramade om Pontus.
+-- Vill ni ha pannkakor? frågade hon, och gick tillbaks till köket. 
